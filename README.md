@@ -10,4 +10,4 @@
 
 这些平台专注于提供国产精品福利资源，内容丰富且分类详细，方便用户快速找到喜欢的影片。每个视频页面均显示详细信息，包括时长、主演和清晰度等，支持高清视频播放，并根据网络环境自动调整画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sang20250710/sang11 ）</span>
